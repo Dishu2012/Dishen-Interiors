@@ -1,7 +1,12 @@
 a company by Dishen Suthar
   
-  
-  
+  copy paste and open this links for sample images of luxurious interior
+ 
+  https://github.com/Dishu2012/Dishen-Interiors/blob/main/IMG_20240707_163446.jpg
+
+  https://github.com/Dishu2012/Dishen-Interiors/blob/main/IMG_20240707_163432.jpg
+
+  https://github.com/Dishu2012/Dishen-Interiors/blob/main/IMG_20240707_163022.jpg
   
   For personal customisation mail on disheninteriors@hotmail.com with photo of your room. You also have to tell me some specific things like styles, etc. 
 
